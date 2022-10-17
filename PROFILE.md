@@ -1,3 +1,3 @@
 Welcome to my GitHub profile!
-arsenal osvaja
+vulvsi osvajaju
 
